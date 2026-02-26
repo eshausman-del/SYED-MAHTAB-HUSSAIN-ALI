@@ -15,5 +15,5 @@ I specialize in Moodle development, customization, and complete LMS solutions fo
 ---
 
 ### Contact
-- Upwork Profile: [Your Upwork Link Here]  
-- Email: [Your Email Here]  
+- Upwork Profile:(https://teams.live.com/l/message/19:uni01_5aoxej4lshtp7lv77punhxenzjiiocrfz4tp2o7jvogt4sw6n5pa@thread.v2/1772079547037?context=%7B%22contextType%22%3A%22chat%22%7D) 
+- Email:pak@taleem.com
